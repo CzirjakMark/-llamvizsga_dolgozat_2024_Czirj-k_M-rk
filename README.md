@@ -1,0 +1,1 @@
+# -llamvizsga_dolgozat_2024_Czirj-k_M-rk
