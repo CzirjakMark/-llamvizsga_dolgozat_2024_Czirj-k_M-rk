@@ -1,1 +1,1 @@
-# -llamvizsga_dolgozat_2024_Czirj-k_M-rk
+# Allamvizsga_dolgozat_2024_Czirjak_Mark
